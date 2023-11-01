@@ -3,7 +3,7 @@
 
 #### Sinopse:
 
-Residente da famosíssima Zona Oeste do Rio de Janeiro, no Bairro de Realengo. Este jovem possui as skills de aprendizado rápido, foco na resolução de problemas, visão de negócio, boa comunicação escrita e verbal, além da habilidade natural de fazer boas relações com quem passa por seu caminho durante a jornada da vida e do mercado de trabalho (é claro que ele não agrada a todos, nem JC conseguiu. Mas ainda sim, ele é bem resiliente quanto a isso... ), este rapaz aqui não vai medir esforços para tornar seus muitos sonhos e objetivos em realidade.
+Residente da famosíssima Zona Oeste do Rio de Janeiro, no Bairro de Realengo, este jovem possui as skills de aprendizado rápido, foco na resolução de problemas, visão de negócio, boa comunicação escrita e verbal, além da habilidade natural de fazer boas relações com quem passa por seu caminho durante a jornada da vida e do mercado de trabalho (é claro que ele não agrada a todos, nem JC conseguiu. Mas ainda sim, ele é bem resiliente quanto a isso... ), este rapaz aqui não vai medir esforços para tornar seus muitos sonhos e objetivos em realidade.
 
 Mais humano que o Batman, esse rapaz já travou batahas tão homéricas quanto as de Ulisses. Esse fato se consolida sob o argumento de que viver no Rio de Janeiro não é para amadores, e olha que ele nem viu de tudo ainda hein. Ele afirma que: "Se você não pegou um Japeri lotado em horário de rush, com certeza não é um bom momento para ouvir o canto das sereias." Volte 5 casas. Ou estações (?)
 
