@@ -9,6 +9,10 @@ Mais humano que o Batman, esse rapaz já travou batahas tão homéricas quanto a
 
 Tirando toda a brincadeira de descontração, mas mantendo o bom humor, é um amante intenso da Literatura, Arte, dos Dados e dos Resultados que podem ser alcançados com as boas interpretações deles. E nada melhor do que contar com esse cara para poder fazer isso da melhor maneira possível. Contando uma história e construindo o caminho mais lúcido e coerente para a resposta. 
 
+Defensor do respeito pelos Dados e da ética envolvida na usabilidade deles. Formaliza: "Use os dados para o bem", não abrace o lado escuro da Força. Ajude as pessoas e restaure a Ordem Jedi.
+
+#### Um pouco mais... 
+
 - 🔭 Estou trabalhando atualmente no projeto: **Alugar ou Financiar, qual a melhor alternativa?**
 
 - 💬 Assuntos do meu interesse: **Análise de Dados, Ciência de Dados, Tecnologia, Mercado Imobiliário, Mercado Financeiro, Ética em IA, ChatBots**
