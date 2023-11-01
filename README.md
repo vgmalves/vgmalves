@@ -1,5 +1,5 @@
-<h1 align="center">E aí👋, Eu sou o Victor Alves!</h1>
-<h3 align="center">Estudante de Ciência de Dados e um ser humano em constante evolução.</h3>
+### E aí👋, Eu sou o Victor Alves!</h1>
+#### Estudante de Ciência de Dados e um ser humano em constante evolução.</h3>
 
 - 🔭 Estou trabalhando atualmente no projeto: **Alugar ou Financiar, qual a melhor alternativa?**
 
