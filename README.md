@@ -1,5 +1,4 @@
-## E aí👋, Eu sou o Victor Alves!
-### Estudante de Ciência de Dados e um ser humano em constante evolução.</h1>
+## E aí👋, Eu sou o Victor Alves! ### Estudante de Ciência de Dados e um ser humano em constante evolução.
 
 - 🔭 Estou trabalhando atualmente no projeto: **Alugar ou Financiar, qual a melhor alternativa?**
 
