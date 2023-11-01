@@ -1,4 +1,4 @@
-## E aí👋, Eu sou o Victor Alves! 
+## E aí! Eu sou o Victor Alves! 👋 
 ### Analista de Dados e atualmente me especializando e aprendendo mais sobre Ciência de Dados.
 
 #### Sinopse:
