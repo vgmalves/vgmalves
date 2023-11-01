@@ -1,4 +1,5 @@
-## E aí👋, Eu sou o Victor Alves! ### Estudante de Ciência de Dados e um ser humano em constante evolução.
+## E aí👋, Eu sou o Victor Alves! 
+### Analista de Dados e atualmente me especializando e aprendendo mais sobre Ciência de Dados.
 
 - 🔭 Estou trabalhando atualmente no projeto: **Alugar ou Financiar, qual a melhor alternativa?**
 
