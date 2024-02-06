@@ -1,9 +1,7 @@
 ## E aí! Eu sou o Victor Alves! 👋 
 ### Analista de Dados
 
-#### Sinopse:
-
-Amante intenso da Literatura, Arte, Tecnologia, Ciência de Dados e dos Resultados que podem ser alcançados com as interpretações corretas dos Dados e informações.
+Amante da Literatura, Arte, Tecnologia, Ciência de Dados e dos Resultados que podem ser alcançados com as interpretações corretas dos Dados e informações.
 
 ### Um pouco mais... 
 
