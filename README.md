@@ -1,5 +1,5 @@
 ## E aí! Eu sou o Victor Alves! 👋 
-### Analista de Dados e atualmente me especializando e aprendendo mais sobre Ciência de Dados.
+### Analista de Dados
 
 #### Sinopse:
 
